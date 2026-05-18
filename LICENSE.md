@@ -1,4 +1,4 @@
-# 
+# Automático Vegas Pro para PC ferramentas é o melhor Vegas Pro para PC ferramentas com efeitos visuais e gráficos em movimento. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
